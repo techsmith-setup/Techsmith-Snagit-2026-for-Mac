@@ -1,0 +1,1 @@
+# Techsmith-Snagit-2026-for-Mac
